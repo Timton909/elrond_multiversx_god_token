@@ -1,0 +1,2 @@
+# elrond_multiversx_god_token
+elrond_multiversx_god_token
